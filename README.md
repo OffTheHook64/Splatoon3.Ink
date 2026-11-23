@@ -1,2 +1,2 @@
 # Splatoon3.Ink
-#how u doin
+HI! this is my custom Splatoon weapon tier list and weapon class site.
